@@ -1,1 +1,1 @@
-our latest  gamin news!# news- 
+our latest  gaming news!# news- 
